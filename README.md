@@ -1,0 +1,1 @@
+# -Paginas-QRRevisionTecnica.aspx-patente-QV0788
